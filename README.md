@@ -1,5 +1,4 @@
 Olá, pode me chamar de Vicky (:
-- 🌱 Atualmente estou caminhando para me tornar uma dev Full Stack! 
 - 😄 Pronouns: ... ela/dela
 
 
